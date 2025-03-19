@@ -1,1 +1,0 @@
-# anm10610622usc020Ashika-A
